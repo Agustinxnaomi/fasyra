@@ -133,4 +133,4 @@ Coming Soon
 
 ---
 
-© 2026 Fasyra Studio
+© 2026 Fasyra
